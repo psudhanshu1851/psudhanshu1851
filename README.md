@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **ANDROID, DART**
 
-- 📫 How to reach me **psudhanshu51@gmail.com**
+- 📫 How to reach me **psudhanshu1851@gmail.com**
 
 - ⚡ Fun fact **When I’m not coding, you’ll find me on the basketball court or smashing birdies in badminton — I believe great ideas come with movement!**
 
