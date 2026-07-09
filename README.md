@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning *MACHINE LEARNING *
 
-- 💬 Ask me about *ANDROID, DART,SQL,JAVA,PYTHON*
+- 💬 Ask me about *ANDROID, DART, SQL , JAVA , PYTHON*
 
 - 📫 How to reach me *psudhanshu1851@gmail.com*
 
